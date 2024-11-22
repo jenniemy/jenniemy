@@ -12,5 +12,5 @@ santos.jennifer10@escola.pr.gov.br
 
 @jenniemy 
 
-![](![image](https://github.com/user-attachments/assets/1e14e505-2bc1-4d20-9f74-acba077b8020)
+![](https://media1.tenor.com/m/LJDfSdWRepIAAAAd/gracie-abrams-kiss.gif)
 
